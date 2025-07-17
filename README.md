@@ -1,0 +1,2 @@
+# Meu-scriptzingg
+Meu script
